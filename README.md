@@ -1,3 +1,13 @@
+> Name --> Manoj Kumawat
+> 
+> Email --> imkumawatmanoj@gmail.com
+> 
+> Github --> https://github.com/imkumawat
+> 
+> Linkedin --> https://www.linkedin.com/in/imkumawat/
+>
+> Feel free to contact me!
+
 - 👋 Hi, I’m Manoj Kumawat
 
 - 1𝑠𝑡 𝑱𝒖𝒍𝒚 👣
